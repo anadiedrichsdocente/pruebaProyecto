@@ -4,3 +4,8 @@
 
 Introduccion
 
+## Como colaborar
+
+## Contacto 
+
+
